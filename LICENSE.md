@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals instant Script, the #1 Script. Includes private server access and auto-collect for unbeatable
 
 
 
